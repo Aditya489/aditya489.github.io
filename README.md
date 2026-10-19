@@ -1,2 +1,2 @@
 # aditya489.github.io
-A professional portfolio built to showcase my work in content strategy, communications, employer branding, and digital storytelling.
+Personal portfolio showcasing my work in employer branding, content strategy, social media, marketing analytics, and AI-enabled content creation.
