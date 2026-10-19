@@ -23,6 +23,6 @@ I work at the intersection of employer branding, content strategy, communication
 
 📍 Mumbai, India
 
-💼 LinkedIn: linkedin.com/in/aditya-singh-b82594181
+💼 LinkedIn: https://www.linkedin.com/in/aditya-singh-b82594181/
 
 📧 adpratapsingh23@gmail.com
